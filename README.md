@@ -1,1 +1,0 @@
-# Gerenciamento-de-controle-financeiro
